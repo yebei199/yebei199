@@ -1,1 +1,1 @@
-- I’m alive , temporarily
+- time branches elernally, extending into infinite future
