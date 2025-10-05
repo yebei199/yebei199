@@ -1,1 +1,2 @@
 - time branches elernally, extending into infinite future
+- no woke, tech first, no politics 
